@@ -1,0 +1,2 @@
+# Editory
+Muhammadalixon, Azimjon
